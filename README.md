@@ -1,1 +1,1 @@
-# WZIM---Planning
+# Wspólnota Życie i Misja — Planning Center
